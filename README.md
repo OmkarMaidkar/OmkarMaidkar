@@ -2,7 +2,7 @@
 - 🙌 I'm currently Working in TCS
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning String Boot
-- 💞️ I’m looking to collaborate on Youtube
+- 💞️ Traveller..!
 - 📫 How to reach me instagram id - theomkarmaidkar
 
 <!---
