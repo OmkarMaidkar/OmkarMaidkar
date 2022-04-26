@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OmkarMaidkar
-- I'm currently Working in TCS
+- 🙌 I'm currently Working in TCS
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning String Boot
 - 💞️ I’m looking to collaborate on Youtube
