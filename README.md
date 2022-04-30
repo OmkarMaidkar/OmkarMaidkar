@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @OmkarMaidkar
 - 🙌 I'm currently Working in TCS
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning String Boot
+- 👀 
+- 🌱 I’m currently learning
 - 💞️ Traveller..!
 - 📫 How to reach me instagram id - theomkarmaidkar
 
