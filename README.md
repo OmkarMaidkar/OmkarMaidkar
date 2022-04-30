@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @OmkarMaidkar
 - 🙌 I'm currently Working in TCS
-- 👀 
+- 👀 Gymholic
 - 🌱 I’m currently learning
 - 💞️ Traveller..!
 - 📫 How to reach me instagram id - theomkarmaidkar
